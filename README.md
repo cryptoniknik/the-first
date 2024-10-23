@@ -1,4 +1,4 @@
-👋 Gm, I’m Crypt0Nik
+👋 Hi, I’m Crypt0Nik
 👀 I’m interested in RWA and DePin
 🌱 I’m currently growing weed, learning python, java and PHP+mySQL
 💞️ I’m looking to collaborate on peace all over the universe
